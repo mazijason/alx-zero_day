@@ -1,2 +1,2 @@
-I DON TIRE
+GOD ABEG
 
